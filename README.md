@@ -1,0 +1,2 @@
+# MagisterkaPisemna
+Praca Magisterska
